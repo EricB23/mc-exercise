@@ -1,7 +1,13 @@
 # MC Exercise
 
-This is what i'm doing on my own when working on the first feature.
+This is the other branch in fubar.
 
-This isn't too bad but it's a bit lonely
+knock, knock.
+who's there?
+you.
+you who?
+yoo-hoo! Anybody home??
 
-Watching marvel and typing this at the same time.
+I wonder when GTA 6 will come out. I'll probably will be drawing my retirement pension by then smh...
+
+Thinking I may fix hamburgers today I don't know yet.
