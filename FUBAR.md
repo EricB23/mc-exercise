@@ -12,4 +12,6 @@ I wonder when GTA 6 will come out. I'll probably will be drawing my retirement p
 
 Thinking I may fix hamburgers today I don't know yet.
 
+
 Added something new to this
+
